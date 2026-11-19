@@ -1,3 +1,3 @@
-# I'm Aedam Javier nigga
+# I'm Aedam Javier
 # About me 
 # Tomboy enjoyer 
